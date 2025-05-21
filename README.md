@@ -3,7 +3,7 @@
 <br/><h3>ABOUT ME</h3><img src="https://64.media.tumblr.com/78165da7f3a7a68b95f7602e9aa316e7/09759af727956db6-c6/s250x400/348c52013f66c7e43cdce5704d97c6b94e189aec.gifv"><img src="https://64.media.tumblr.com/cb2408652c1f5ba923da1e32fe5f3a6e/09759af727956db6-05/s250x400/92e8506a06565667c1049126b303fad74ebbd568.gifv"><img src="https://64.media.tumblr.com/f7d6903874a44b2ea3d41bf58b12f286/668d3fe8304f9427-07/s100x200/d9fb3cd4fcc710bba612cb3413e178160dfe8c2b.gifv"> Just ur average fella, I'm not all that active on ponytown tho,, MOOT ME UP ON SPACEHEY I BEGGGGG https://spacehey.com/calstar (It's more jjk focused, but dww) <img src="https://64.media.tumblr.com/27d56f420d34be14d29f852275692539/668d3fe8304f9427-8e/s100x200/86377b94ce843535b7d4272340a524b3b5cd343f.gifv">
 <br/> <h3> DNI and BYI </h3> <img src="https://64.media.tumblr.com/a8cf7f82441cca85dcdce1a0b3cdea90/668d3fe8304f9427-8d/s100x200/f7661e877ca7269f2c51fa06e64250f59d2c94e2.gifv"> Basic dni criteria, People who see no issue with C.ai, Hoyoverse *supporters*, People 13 and under, ****those*** Crk fans.* 
 <br/>
-ALSO! Hehhh..... i'm Christian!!1, I'm not an ass i swear!!!!! Just pleeasseee don't be blasphemic around me, like, you *can* but that would be really weird
+ALSO! Hehhh..... i'm Christian!!1, I'm not an ass i swear!!!!! Just pleeasseee don't be blasphemic around me, like, you *can* but that would be really weird<br/> I'm BLACK 🤯
 
 
 <div style="text-align: center;">
