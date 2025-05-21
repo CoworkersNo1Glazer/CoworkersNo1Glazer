@@ -5,9 +5,8 @@
 <br/>
 ALSO! Hehhh..... i'm Christian!!1, I'm not an ass i swear!!!!! Just pleeasseee don't be blasphemic around me, like you *can* but that would be really weird
 
-<iframe width="0" height="0" src="https://www.youtube.com/embed/lcuq9ejSGOY//?&;amp;;autoplay=1&;loop=1&;controls=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen="" loading="lazy">
+[Link text](https://gabalpha.github.io/read-audio/?p=[https://archive.org/serve/TimeTraxMD/01.%20Music%2000.mp3](https://soundcloud.com/hn_nm/main-theme-elevator-hitch?in=user-99492664/sets/sig-studio-investigrave-game))
 
-</iframe>
 <!--
 
 **CoworkersNo1Glazer/CoworkersNo1Glazer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
