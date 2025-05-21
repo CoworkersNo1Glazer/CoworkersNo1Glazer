@@ -4,6 +4,10 @@
 <br/> <h3> DNI and BYI </h3> <img src="https://64.media.tumblr.com/a8cf7f82441cca85dcdce1a0b3cdea90/668d3fe8304f9427-8d/s100x200/f7661e877ca7269f2c51fa06e64250f59d2c94e2.gifv"> Basic dni criteria, People who see no issue with C.ai, Hoyoverse *supporters*, People 13 and under, ****those*** Crk fans.* 
 <br/>
 ALSO! Hehhh..... i'm Christian!!1, I'm not an ass i swear!!!!! Just pleeasseee don't be blasphemic around me, like you *can* but that would be really weird
+
+<iframe width="0" height="0" src="https://www.youtube.com/embed/lcuq9ejSGOY//?&;amp;;autoplay=1&;loop=1&;controls=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen="" loading="lazy">
+
+</iframe>
 <!--
 
 **CoworkersNo1Glazer/CoworkersNo1Glazer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
