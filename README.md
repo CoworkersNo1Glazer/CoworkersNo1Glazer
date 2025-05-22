@@ -6,8 +6,8 @@
 ALSO! Hehhh..... i'm Christian!!1, I'm not an ass i swear!!!!! Just pleeasseee don't be blasphemic around me, like, you *can* but that would be really weird<br/> I'm BLACK 🤯
 
 
-<div style="text-align: center;">
-  <img src="https://media.tenor.com/RVqg9j7Id6MAAAAj/elevator-hitch-protag.gif">
-</div>
+
+  <img src="https://media.tenor.com/RVqg9j7Id6MAAAAj/elevator-hitch-protag.gif"><img src="https://static.wikia.nocookie.net/elevator-hitch/images/7/70/Protagplushjump.gif/revision/latest/scale-to-width-down/1000?cb=20241010105620">
+
 
 
