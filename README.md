@@ -7,7 +7,7 @@ ALSO! Hehhh..... i'm Christian!!1, I'm not an ass i swear!!!!! Just pleeasseee d
 
 
 
-  <img src="https://media.tenor.com/RVqg9j7Id6MAAAAj/elevator-hitch-protag.gif"><img src="https://static.wikia.nocookie.net/elevator-hitch/images/7/70/Protagplushjump.gif/revision/latest/scale-to-width-down/1000?cb=20241010105620">
+  <img src="https://media.tenor.com/RVqg9j7Id6MAAAAj/elevator-hitch-protag.gif"><br/><img src="https://i.pinimg.com/736x/3d/0d/d4/3d0dd4d66c34620129362a2cd7ef1776.jpg">
 
 
 
