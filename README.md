@@ -12,7 +12,7 @@
  strawpage is a wip!! 
 <br/>
 
- any/all - minor - bipoc - artist 
+ any/all - minor - bipoc 
 
 
 
