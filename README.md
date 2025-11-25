@@ -28,4 +28,4 @@
 
 
 
- <img align="right" src="https://i.postimg.cc/zG3knn1k/pony-town-studyin-c-h-lie-zzz-toy134-5x-(1).gif" width="200"><img alt="followers" title="Follow me on Github" src="https://img.shields.io/github/followers/YOUR-GITHUB-USERNAME?color=orange&style=plastic&labelColor=white&label=moots"/>
+ <img align="right" src="https://i.postimg.cc/zG3knn1k/pony-town-studyin-c-h-lie-zzz-toy134-5x-(1).gif" width="200"> <br/> <br/> <br/> <br/> <img align="right" img alt="followers" title="Follow me on Github" src="https://img.shields.io/github/followers/CoworkersNo1Glazer?color=d13a34&style=plastic&label=followerz"/>
