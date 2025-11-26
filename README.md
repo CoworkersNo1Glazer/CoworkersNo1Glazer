@@ -45,3 +45,7 @@
 
 
  <img align="right" src="https://i.postimg.cc/zG3knn1k/pony-town-studyin-c-h-lie-zzz-toy134-5x-(1).gif" width="200"> <br/> <br/> <br/> <br/> <img align="right" img alt="followers" title="Follow me on Github" src="https://img.shields.io/github/followers/cupidexpress?color=d13a34&style=plastic&label=followers"/>
+
+ <br/><br>
+ <p align="center">
+ <img src="https://i.postimg.cc/zDk8PJ7P/pony-town-back-2-cleaning-my-room-afk-kiss-lift-hoof-blinking-toy336-4x.gif"><img src="https://i.postimg.cc/B60fMy1r/pony-town-MY-ONE-AND-ONLY-JJK-kiss-blinking-toy268-4x.gif">
