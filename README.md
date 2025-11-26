@@ -7,14 +7,14 @@
 
 
 <p align="center">
-<img src="https://tomomi.neocities.org/divider/div22.gif">
+<img src="https://supplies.ju.mp/assets/images/tiny1/5d28aa7a.gif?v=1c1ba870"><img src="https://tomomi.neocities.org/divider/div22.gif"><img src="https://supplies.ju.mp/assets/images/gallery04/3628e352.gif?v=1c1ba870">
 
 <p align="center">
  <sup>
  strawpage is a wip!! 
 <br/>
   <p align="center">
-   <img src="https://tomomi.neocities.org/pixeles/257.gif">
+   <img src="https://supplies.ju.mp/assets/images/gallery04/3cc2c9b0.gif?v=1c1ba870">
 <p align="center">
   <sup>
  any/all - minor - blk 
@@ -23,7 +23,7 @@
 
 <p align="center">
   <sup>
- jjk and sig enthusiast
+ <img src="https://supplies.ju.mp/assets/images/tiny1/064f6c03.gif?v=1c1ba870">jjk and sig enthusiast<img src="https://supplies.ju.mp/assets/images/tiny1/7ec3c3fa.gif?v=1c1ba870">
  </sup>
 <br/>
 <p align="center">
