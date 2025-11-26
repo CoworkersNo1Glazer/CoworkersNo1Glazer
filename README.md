@@ -11,7 +11,10 @@
 
 <p align="center">
  <sup>
- strawpage is a wip!! 
+ links are wips!! 
+  <p align="center">
+   <sup>
+    1.  2. 3.
 <br/>
   <p align="center">
    <img src="https://supplies.ju.mp/assets/images/gallery04/3cc2c9b0.gif?v=1c1ba870">
