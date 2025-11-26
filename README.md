@@ -6,12 +6,15 @@
 <br/>
 
 
-
+<p align="center">
+<img src="https://tomomi.neocities.org/divider/div22.gif">
 
 <p align="center">
  <sup>
  strawpage is a wip!! 
 <br/>
+  <p align="center">
+   <img src="https://tomomi.neocities.org/pixeles/257.gif">
 <p align="center">
   <sup>
  any/all - minor - blk 
@@ -23,6 +26,9 @@
  jjk and sig enthusiast
  </sup>
 <br/>
+<p align="center">
+<img src="https://tomomi.neocities.org/blink/b13.gif">
+<p align="center"> <img src="https://tomomi.neocities.org/divider/div60.gif">
 
  </sup>
 
