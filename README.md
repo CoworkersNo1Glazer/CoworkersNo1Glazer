@@ -14,7 +14,7 @@
 <br/>
 <p align="center">
   <sup>
- any/all - minor - bipoc 
+ any/all - minor - blk 
  </sup>
 
 
