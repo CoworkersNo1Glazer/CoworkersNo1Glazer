@@ -18,7 +18,7 @@
  <a href="https://www.tumblr.com/c4lstar">1.</a> 2. 3.
   <p align="center">
    <sup>
-   "<i>one day, i will stop falling in love, with, <ins>$${\color{red}you.}$$</ins></i>"
+   "<i>one day, i will stop falling in love, with, <ins>$${\color{blue}you.}$$</ins></i>"
     <br/>
   <p align="center">
    <img src="https://supplies.ju.mp/assets/images/gallery04/3cc2c9b0.gif?v=1c1ba870">
