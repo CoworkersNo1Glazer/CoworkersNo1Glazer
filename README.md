@@ -23,7 +23,7 @@
 
 <p align="center">
   <sup>
- <img src="https://supplies.ju.mp/assets/images/tiny1/064f6c03.gif?v=1c1ba870">jjk and sig enthusiast<img src="https://supplies.ju.mp/assets/images/tiny1/7ec3c3fa.gif?v=1c1ba870">
+ <img src="https://supplies.ju.mp/assets/images/tiny1/064f6c03.gif?v=1c1ba870">jjk, dungeon meshi and sig enthusiast<img src="https://supplies.ju.mp/assets/images/tiny1/7ec3c3fa.gif?v=1c1ba870">
  </sup>
 <br/>
 <p align="center">
