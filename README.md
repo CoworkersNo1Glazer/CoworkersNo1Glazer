@@ -11,7 +11,11 @@
 
 <p align="center">
  <sup>
- links are wips!! 
+  links are wips!
+ </sup>
+<p align="center">
+ <sup>
+ <a href="https://www.tumblr.com/c4lstar">1.</a> 2. 3.
   <p align="center">
    <sup>
    "<i>one day, i will stop falling in love, with, <ins>$${\color{red}you.}$$</ins></i>"
