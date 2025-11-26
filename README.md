@@ -14,8 +14,8 @@
  links are wips!! 
   <p align="center">
    <sup>
-    1. 2. 3.
-<br/>
+   "<i>one day, i will stop falling in love, with, <ins>$${\color{red}you.}$$</ins></i>"
+    <br/>
   <p align="center">
    <img src="https://supplies.ju.mp/assets/images/gallery04/3cc2c9b0.gif?v=1c1ba870">
 <p align="center">
