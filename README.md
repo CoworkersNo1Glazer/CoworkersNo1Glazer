@@ -7,7 +7,7 @@
 
 
 <p align="center">
-<img src="https://supplies.ju.mp/assets/images/tiny1/5d28aa7a.gif?v=1c1ba870"><img src="https://tomomi.neocities.org/divider/div22.gif"><img src="https://supplies.ju.mp/assets/images/gallery04/3628e352.gif?v=1c1ba870">
+<img src="https://supplies.ju.mp/assets/images/tiny1/5d28aa7a.gif?v=1c1ba870"><sup>i'm usually hanging out in the sig area, or chilling with random ppl in the jjk area</sup><img src="https://supplies.ju.mp/assets/images/gallery04/3628e352.gif?v=1c1ba870">
 
 <p align="center">
  <sup>
@@ -27,7 +27,10 @@
  </sup>
 <br/>
 <p align="center">
-<img src="https://tomomi.neocities.org/blink/b13.gif">
+<img src="https://tomomi.neocities.org/blink/b13.gif"><img src="https://supplies.ju.mp/assets/images/gallery14/a87f073d.gif?v=1c1ba870">
+ <br/>
+ <p align="center">
+  <img src="https://supplies.ju.mp/assets/images/gallery09/2a4c8e54_original.png?v=1c1ba870">
 <p align="center"> <img src="https://tomomi.neocities.org/divider/div60.gif">
 
  </sup>
