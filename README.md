@@ -48,4 +48,6 @@
 
  <br/><br>
  <p align="center">
- <img src="https://i.postimg.cc/zDk8PJ7P/pony-town-back-2-cleaning-my-room-afk-kiss-lift-hoof-blinking-toy336-4x.gif"><img src="https://i.postimg.cc/B60fMy1r/pony-town-MY-ONE-AND-ONLY-JJK-kiss-blinking-toy268-4x.gif">
+<img src="https://i.postimg.cc/B60fMy1r/pony-town-MY-ONE-AND-ONLY-JJK-kiss-blinking-toy268-4x.gif"width="150">
+<p align="center">
+ <img src="https://i.postimg.cc/zDk8PJ7P/pony-town-back-2-cleaning-my-room-afk-kiss-lift-hoof-blinking-toy336-4x.gif"width="150">
