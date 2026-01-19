@@ -11,7 +11,7 @@
 
 <p align="center">
  <sup>
-  links are wips!
+  damn near allways offtab + in class, w2int usually
  </sup>
 <p align="center">
  <sup>
