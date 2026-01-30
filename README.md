@@ -1,7 +1,4 @@
-<p align="center"> <img src="https://i.postimg.cc/s23HgVbw/263a2987425bf1de28873baf905a475e-removebg-preview.png" width="400"><br/>
-
-
-<br/>
+<p align="center"> <img src="https://i.postimg.cc/s23HgVbw/263a2987425bf1de28873baf905a475e-removebg-preview.png" width="300"><br/>
 
 
 <p align="center">
