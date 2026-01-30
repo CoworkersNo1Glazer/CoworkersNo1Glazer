@@ -45,6 +45,3 @@
 
  </sup>
 
-
-
-(https://komarev.com/ghpvc/?username=satosugu&color=blue&style=plastic&base=92&label=💌)
