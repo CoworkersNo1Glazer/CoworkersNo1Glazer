@@ -1,4 +1,4 @@
-<img align="left" src="https://i.postimg.cc/vTpNp3M6/pony-town-the-better-cupid-CE-c-h-lie-zzz-toy413-5x.gif" width="200"><br/><br/><br/>![](https://komarev.com/ghpvc/?username=satosugu&color=blue&style=plastic&base=92&label=💌)
+<img align="left" src="https://i.postimg.cc/vB6R72B7/pony-town-gayto-sit-zzz-toy336-5x.gif" width="200"><br/><br/><br/>![](https://komarev.com/ghpvc/?username=satosugu&color=blue&style=plastic&base=92&label=💌)
 
 <br/><br/><br/><br/>
 
