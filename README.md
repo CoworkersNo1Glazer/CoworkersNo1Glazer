@@ -1,6 +1,4 @@
-<img align="left" src="https://i.postimg.cc/vB6R72B7/pony-town-gayto-sit-zzz-toy336-5x.gif" width="200"><br/><br/><br/>![](https://komarev.com/ghpvc/?username=satosugu&color=blue&style=plastic&base=92&label=💌)
-
-<br/><br/><br/><br/>
+<p align="center"> <img src="https://i.postimg.cc/s23HgVbw/263a2987425bf1de28873baf905a475e-removebg-preview.png" width="400"><br/>
 
 
 <br/>
@@ -48,5 +46,4 @@
 
 
 
- <img align="right" src="https://i.postimg.cc/zG3knn1k/pony-town-studyin-c-h-lie-zzz-toy134-5x-(1).gif" width="200"> <br/> <br/> <br/> <br/> <img align="right" img alt="followers" title="Follow me on Github" src="https://img.shields.io/github/followers/cupidexpress?color=d13a34&style=plastic&label=followers"/>
-
+ <img align="right" src="https://i.postimg.cc/zG3knn1k/pony-town-studyin-c-h-lie-zzz-toy134-5x-(1).gif" width="200"> <br/> <br/> <br/> <img align="right" img alt="followers" title="Follow me on Github" src="https://img.shields.io/github/followers/cupidexpress?color=d13a34&style=plastic&label=followers"/> <p align="right"> <br/> ![](https://komarev.com/ghpvc/?username=satosugu&color=blue&style=plastic&base=92&label=💌)
