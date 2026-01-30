@@ -1,4 +1,5 @@
-<p align="center"> <img src="https://i.postimg.cc/s23HgVbw/263a2987425bf1de28873baf905a475e-removebg-preview.png" width="300">
+<p align="center"> <img src="https://i.postimg.cc/s23HgVbw/263a2987425bf1de28873baf905a475e-removebg-preview.png" width="300"> <br/>
+<img src="https://adriansblinkiecollection.neocities.org/dividers/glitterstrawberries.gif">
 
 
 <p align="center">
@@ -36,7 +37,9 @@
 <img src="https://tomomi.neocities.org/blink/b13.gif"><img src="https://supplies.ju.mp/assets/images/gallery14/a87f073d.gif?v=1c1ba870">
  <br/>
  <p align="center">
-  <img src="https://supplies.ju.mp/assets/images/gallery09/2a4c8e54_original.png?v=1c1ba870">
+  <img src="https://adriansblinkiecollection.neocities.org/stamps/i31.gif"><img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/b68abe18-faaf-429f-a5b3-0f173702fb13/d37ut4i-3653bff6-dc7f-4957-bc29-9abab0e1f2e9.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9iNjhhYmUxOC1mYWFmLTQyOWYtYTViMy0wZjE3MzcwMmZiMTMvZDM3dXQ0aS0zNjUzYmZmNi1kYzdmLTQ5NTctYmMyOS05YWJhYjBlMWYyZTkucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.40m7Fy6ABy_wNuSUc18vnijqSPGIcb-JLxWafTnLRrQ"><img src="https://adriansblinkiecollection.neocities.org/stamps/b32.png"><br/><img src="https://adriansblinkiecollection.neocities.org/stamps/k9.gif"><img src="https://adriansblinkiecollection.neocities.org/stamps/k20.png"><img src="https://adriansblinkiecollection.neocities.org/stamps/k10.gif">
+<br/><br/><img src="https://adriansblinkiecollection.neocities.org/g124.gif"><img src="https://adriansblinkiecollection.neocities.org/g2.gif"><br/><img src="https://adriansblinkiecollection.neocities.org/g1.gif"><img src="https://adriansblinkiecollection.neocities.org/g61.gif"><br/><img src="https://adriansblinkiecollection.neocities.org/g32.gif"><img src="https://adriansblinkiecollection.neocities.org/g44.gif"> <br/><br/>
+<img src="https://adriansblinkiecollection.neocities.org/buttons/a122.gif"><img src="https://adriansblinkiecollection.neocities.org/buttons/a6.gif"><img src="https://adriansblinkiecollection.neocities.org/buttons/a7.gif">
 <p align="center"> <img src="https://tomomi.neocities.org/divider/div60.gif">
 
  </sup>
