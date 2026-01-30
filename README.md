@@ -19,9 +19,10 @@
    <img src="https://supplies.ju.mp/assets/images/gallery04/3cc2c9b0.gif?v=1c1ba870">
 <p align="center">
   <sup>
- any/all - minor - blk 
+ any/all - minor - blk   
  </sup>
 <p align="center">
+<img align="center" img alt="followers" title="Follow me on Github" src="https://img.shields.io/github/followers/cupidexpress?color=d13a34&style=plastic&label=followers"/><br/><br/> 
 <sup> selective sharing kai yume.. ok..? (lego ninjago) <br/> doubles, kailor shippers and kai cosplayers will shot on sight.. growls..⠀ ׅ　</sup>
  <br/>
  <br/>
@@ -46,4 +47,4 @@
 
 
 
- <img align="right" src="https://i.postimg.cc/zG3knn1k/pony-town-studyin-c-h-lie-zzz-toy134-5x-(1).gif" width="200"> <br/> <br/> <br/> <img align="right" img alt="followers" title="Follow me on Github" src="https://img.shields.io/github/followers/cupidexpress?color=d13a34&style=plastic&label=followers"/> <p align="right"> <br/> ![](https://komarev.com/ghpvc/?username=satosugu&color=blue&style=plastic&base=92&label=💌)
+(https://komarev.com/ghpvc/?username=satosugu&color=blue&style=plastic&base=92&label=💌)
